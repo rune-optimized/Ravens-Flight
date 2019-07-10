@@ -1,0 +1,1 @@
+Help me get my logo into every smartphone on the planet. I want apps, youtube cross overs. google, foreign directories, everywhere. Let me help this grow fellas. Let it be seen. Let the Raven Fly Fellas. 
